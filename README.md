@@ -16,7 +16,7 @@ The instructor during the session was Mr. Shaurya Sinha (a Data Analyst at Jio).
 
 
 
-I enjoyed these 7 days, you can as well. To register for next free 7 days bootcamp, visit: www.shapeai.tech
+Just like I enjoyed these 7 days, you can as well. To register for next free 7 days bootcamp, visit: www.shapeai.tech
 
 or follow SHAPEAI on:
 
